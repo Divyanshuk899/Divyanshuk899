@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently java
 - 💞️ I’m looking to collaborate
-- 📫 How to reach me intagram- divyanshuk899
+- 📫 How to reach me instagram- divyanshuk899
 linkedin- divyanshuk899
 
 <!---
